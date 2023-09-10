@@ -1,0 +1,1 @@
+# Distribui-o-de-Lucro-Vendas-e-Unidades-Vendidas-por-pa-s-e-Segmento
